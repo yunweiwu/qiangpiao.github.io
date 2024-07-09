@@ -1,1 +1,1 @@
-this is idea
+让我们一起抢票吧
